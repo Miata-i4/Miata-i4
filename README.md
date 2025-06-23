@@ -1,3 +1,3 @@
 ## Hi there 👋
 💻 UG Cyber Security Student
-## ☠️Piracy is Immortal: every cheat eventually gets nerfed 🎮
+## I believe in the Spiral, and you? 
