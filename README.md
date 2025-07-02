@@ -1,3 +1,3 @@
 ## Hi there 👋
 💻 UG Cyber Security Student
-## I believe in the Spiral, and you? 
+## I believe in the Spiral
